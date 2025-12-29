@@ -1,4 +1,9 @@
-<div align="center">
+<div align="center"> 
 
-<br><br>![](https://komarev.com/ghpvc/?username=afterpain&label=+𑄝+&color=edddcd&style=plastic&base=32589102)
-<br> <a href="https://bl8m.atabook.org/" target="_blank">atabook</a> <a href="https://rentry.co/goontwt" target="_blank">rentry</a>
+<div> 
+  
+
+###### [ATABOOK](https://bl8m.atabook.org)ㅤㅤ<img src="https://file.garden/ZotqTQPnfleFcLbp/01.png" align="center" width="120px">ㅤㅤ[RENTRY](https://rentry.co/goontwt)
+![](https://komarev.com/ghpvc/?username=afterpain&label=+𑄝+&color=451A36&style=plastic&base=676767676767&abbreviated=true&width=180px)
+###### MY HAREMTWT ♡ㅤㅤ[NOVA](https://github.com/bloody-yuri)ㅤ[JUNE](https://github.com/reiningcloud)ㅤ[MORRI](https://github.com/KY0GEN)ㅤ[AO](https://github.com/consquence)
+</div>
