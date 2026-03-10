@@ -1,7 +1,7 @@
 <div align="center">
 
 
-###### <br> waaaahㅤwaaaahhhhh
+###### <br> night⠀falls,⠀everyone,⠀close⠀your⠀eyes⠀~
 ##### [RENTRY](https://rentry.co/sprx)ㅤ/ㅤ[EXT.](https://rentry.co/gccn)ㅤ<img src="https://static.wikia.nocookie.net/houkai-star-rail/images/d/d2/Sticker_PPG_24_Evernight_03.png/revision/latest?cb=20250926184841" width="90px" align="center">
 ###### iㅤ♡ㅤyouㅤguys.ㅤmyㅤharemtwtㅤ4ever
 
