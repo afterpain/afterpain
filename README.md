@@ -2,6 +2,6 @@
 
 
 ###### <br> alwaysㅤofftabㅤplayingㅤotherㅤgamesㅤcauseㅤiㅤhateㅤthisㅤponygame.
-##### [RENTRY](https://rentry.co/slitfreak)
+##### [more info about me :flushed:](https://rentry.co/bestseller)
 ###### i'mㅤTIREDㅤandㅤiㅤdon'tㅤhaveㅤtheㅤgutsㅤtoㅤeditㅤmyㅤreadmeㅤorㅤanything
 
