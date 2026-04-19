@@ -3,5 +3,5 @@
 
 ###### <br> alwaysㅤofftabㅤplayingㅤotherㅤgamesㅤcauseㅤiㅤhateㅤthisㅤponygame.
 ##### [RENTRY](https://rentry.co/slitfreak)
-###### iㅤloveㅤㅤYUMETWT!ㅤㅤThe Friend Group.
+###### i'mㅤTIREDㅤandㅤiㅤdon'tㅤhaveㅤtheㅤgutsㅤtoㅤeditㅤmyㅤreadmeㅤorㅤanything
 
