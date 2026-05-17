@@ -1,11 +1,9 @@
 <div align="center">
 
 
-###### Always offtab sign my ata. I'm the larper or something.
-##### [more info about me :flushed:](https://rentry.co/thecurious) [my atabook :flushed:](https://aha.atabook.org)
-###### Not now my beautiful waifus I'm with my Squadmates.
+###### I'm The Larper. I'm always offtab. Cuddle with me freely I always get cold
+##### [more info about me](https://rentry.co/thecurious)ㅤ ㅤ [my atabook](https://aha.atabook.org)
+###### My Squadmates below I love them a Whole Lot.
 ###### [JUNE](https://github.com/reiningcloud)ㅤ [CYRI](https://github.com/lesbianeus)ㅤ [FORK](https://github.com/httpsfork)ㅤ [SEIT](https://github.com/conciliate)ㅤ [KEMI](https://github.com/enmitye)
-<br>
-<img src="https://file.garden/ZotqTQPnfleFcLbp/WHAT.png" width="360px">
 
-###### why is @httpsfork like this?
+<img src="https://file.garden/ZotqTQPnfleFcLbp/WHAT.png" width="360px">  <br> @httpsfork Hi
