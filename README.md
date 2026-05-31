@@ -7,4 +7,3 @@
 ###### My Squadmates below I love them a Whole Lot.
 ###### [JUNE](https://github.com/reiningcloud)ㅤ [CYRI](https://github.com/lesbianeus)ㅤ [FORK](https://github.com/httpsfork)ㅤ [SEIT](https://github.com/conciliate)ㅤ [KEMI](https://github.com/enmitye)
 
-<img src="https://file.garden/ZotqTQPnfleFcLbp/WHAT.png" width="360px">  <br> @httpsfork Hi
