@@ -1,7 +1,7 @@
 <div align="center">
 
 
-###### I'm The Larper. I'm always offtab. Cuddling with me Ok.
+###### I'm The Larper. I'm always offtab. Cuddling with me is Ok.
 ###### username: afterpain pfp: pain mv  <- LARP?
 ##### [more info about me](https://rentry.co/thecurious)ㅤ ㅤ [my atabook](https://gwylan.atabook.org)
 ###### My Squadmates below I love them a Whole Lot.
